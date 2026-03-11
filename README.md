@@ -1,6 +1,8 @@
-You can also call me sarin.
+you can also call me sarin.
 
-Feel free to contact me with
+dreamer, dreaming, and living inside the dream.
+
+feel free to contact me via
 [matrix](https://matrix.to/#/@ocfox:matrix.org)
 [telegram](https://t.me/urrsc)
 or
