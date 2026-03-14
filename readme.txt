@@ -1,5 +1,5 @@
 you can also call me sarin.
-dreamer, dreaming, and living inside the dream.
+dreamer, dreaming, and living inside a dream.
 
 feel free to contact me via
 https://matrix.to/#/@ocfox:matrix.org
